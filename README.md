@@ -7,4 +7,4 @@ http://es.slideshare.net/paulareval1/cvtrafficcounter-video
 
 
 Video en Youtube:
-https://youtu.be/L1v6xCh37aQ
+https://www.youtube.com/watch?v=qampX1eZPig
